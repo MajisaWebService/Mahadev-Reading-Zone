@@ -140,9 +140,9 @@ To maintain absolute peace and focused study environment:
 ## 👤 Contacts & Information
 
 For queries or membership registrations:
-*   **Location:** Gandhinagar, Gujarat
-*   **Phone:** +91 74359 33573
-*   **WhatsApp:** +91 74359 33573
+*   **Location:** Ahmedabad, Gujarat
+*   **Phone:** +91 90160 72082
+*   **WhatsApp:** +91 90160 72082
 
 ---
 
